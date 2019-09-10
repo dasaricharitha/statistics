@@ -1,6 +1,5 @@
-i am in development branch
+i am updating in dev branch.
 hai guys
 charan
 krishna
-hup
-dgsgdyiqgdgsqsiaigiqwgy
+hup.
